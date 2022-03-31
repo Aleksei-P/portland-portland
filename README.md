@@ -1,7 +1,7 @@
 # From Portland to Portland
 ____
 
-[Open page](ttps://aleksei-p.github.io/portland-portland/)
+[Open page](https://aleksei-p.github.io/portland-portland/)
 
 ____
 
